@@ -1,5 +1,3 @@
-- 🇻🇳🏳️‍🌈
-- i use all pronouns :)
-- professional buildbot
+Read my bio @ t.me/qxgbio
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=xdpsu7ka6jsrfygs1u12qagnv)
+![Ur mom](https://spotify-recently-played-readme.vercel.app/api?user=xdpsu7ka6jsrfygs1u12qagnv)
