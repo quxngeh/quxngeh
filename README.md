@@ -1,2 +1,1 @@
-
-![Ur mom](https://spotify-recently-played-readme.vercel.app/api?user=xdpsu7ka6jsrfygs1u12qagnv)
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=sadisntit)
